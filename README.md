@@ -1,1 +1,2 @@
 Nama ku rifqah
+Informatika
